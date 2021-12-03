@@ -24,4 +24,14 @@ Contact:
 Website:
 https://rosietaxicab.com/
 
+https://rosietaxicab.com/ventura-2/
+
+https://rosietaxicab.com/taxi-cab-oxnard/
+
+https://rosietaxicab.com/taxi-cab-ojai/
+
+https://rosietaxicab.com/taxi-cab-thousand-oaks/
+
+https://rosietaxicab.com/taxi-cab-camarillo/
+
 --->
